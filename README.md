@@ -1,4 +1,4 @@
-# **<ins><div align="center">[SUPREETH GOLLAPALLY](http://example/com)</div></ins>**  
+# **<ins><div align="center">[SUPREETH GOLLAPALLY](supreethgollapally.me)</div></ins>**  
   
 
 **About me**  
